@@ -1,4 +1,4 @@
-#  
+#  easter tap simulator premium Scripts offers the most advanced easter tap simulator Script, with auto-upgrade and auto-collect. Perfect for dominating
 
 
 
